@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @iktkarmita
-- 👀 Stay Learning
+- 👀 Stay Learning...
 
